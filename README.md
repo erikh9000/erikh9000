@@ -1,1 +1,1 @@
-## Curious and on the lookout for new adventures 🕵️‍♂️
+Curious and on the lookout for new adventures 🕵️‍♂️
